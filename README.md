@@ -1,1 +1,0 @@
-# Detectives-de-la-logica
